@@ -1,0 +1,1 @@
+# GitKOnfliktusKezelesEgyeni2
